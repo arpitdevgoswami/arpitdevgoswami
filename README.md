@@ -14,7 +14,7 @@ break — so I can help build ones that don't.
 <td>
 
 **LINKEDIN**
-[your-linkedin-handle]([https://linkedin.com/in/your-handle](https://www.linkedin.com/in/arpitdevgoswami?utm_source=share_via&utm_content=profile&utm_medium=member_android))
+[(https://www.linkedin.com/in/arpitdevgoswami?utm_source=share_via&utm_content=profile&utm_medium=member_android))](https://www.linkedin.com/in/arpitdevgoswami?utm_source=share_via&utm_content=profile&utm_medium=member_android)
 
 </td>
 <td>
